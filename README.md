@@ -1,1 +1,0 @@
-# Shottu.github.ioq
